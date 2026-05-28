@@ -1,3 +1,3 @@
-Lopez Guzman Siad Tadeo 2AVPr.
+Lopez Guzman Siad Tadeo 2AVPr
 
 
